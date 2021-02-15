@@ -4,6 +4,6 @@ after a long time away from doomscrolling on socials i don't care about i've dec
 here are some useful links
  
 soundcloud [here](https://soundcloud.com/sebastard)\
-telegram channel [here](https://t.me/joinchat/RsvILPzI5KwxgKy_)\
+telegram channel [here](https://t.me/joinchat/RsvILPzI5KwxgKy_)
 
-cya\
+cya
